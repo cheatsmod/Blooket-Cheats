@@ -1,4 +1,4 @@
 # Blooket-Cheats
-A Repository With Blooket Hacks As A Chrome Extension And A Wiki About How To Install.  c
+Hey there good people, we're showing you how you can get yourself free coins on Blooket in just a few clicks. Find out more below!
 
-download from here https://www.yaagame.com/
+[Learn how to hack coins on Blooket in minutes](https://www.yaagame.com/2023/09/blooket-hack-method-get-unlimited-coins.html)
